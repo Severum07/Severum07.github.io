@@ -1,4 +1,5 @@
 ## Welcome to GitHub Pages
+Owned by Ric Benedict Agapay
 
 You can use the [editor on GitHub](https://github.com/Severum07/Severum07.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
 
