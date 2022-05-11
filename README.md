@@ -25,6 +25,7 @@
 
 #### - Speedcubing 
 
+![Rubiks_Cube_shutterstock_271810067-removebg-preview](https://user-images.githubusercontent.com/97175644/167894310-6cd5bdf0-1cb0-4b69-96c9-efd2e6318084.png)
 
 #### - Drumming (Marching Snare)
 
