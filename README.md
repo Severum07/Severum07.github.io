@@ -29,5 +29,6 @@
 
 #### - Drumming (Marching Snare)
 
+![Yamaha-MS9313A-removebg-preview](https://user-images.githubusercontent.com/97175644/167894413-a559ee6c-d565-4671-b4ec-293100bc57ec.png)
 
 #### I hope that these little bits of information can give you an idea about my personality. It is quite hard to make friends especially during this pandemic. I hope that this short portfolio can introduce myself for you. Thanks!
