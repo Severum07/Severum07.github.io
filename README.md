@@ -22,7 +22,7 @@
 
 #### - Listening to Kpop (Twice, Nmixx, Itzy, StayC, Ive, Iz*One)
 
-![nmixx.jfif](file:///C:/Users/Ric%20Benedict%20Agapay/OneDrive/Desktop/nmixx.jfif)
+![fnaf](https://user-images.githubusercontent.com/97175644/167895051-b7b20e66-df34-4c4e-b6a2-7aedb759f818.PNG)
 
 #### - Speedcubing 
 
