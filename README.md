@@ -13,9 +13,23 @@
 #### I find that I am not very unique but still, here are the activities that take up most of my time.
 
 #### - Gaming (League of Legends, Valorant, Apex Legends)
+
+
+
 #### - Watching Anime 
+
+![MV5BZmUzMThjOTItZGY4ZS00ODcwLTliNTMtYjVkM2JmY2QxNmRhXkEyXkFqcGdeQXVyMzgxODM4NjM@ _V1_](https://user-images.githubusercontent.com/97175644/167893719-6dc8b611-83d6-437c-b8eb-22215a7259dd.jpg)
+
 #### - Listening to Kpop (Twice, Nmixx, Itzy, StayC, Ive, Iz*One)
+
+
+
 #### - Speedcubing 
+
+
+
 #### - Drumming (Marching Snare)
+
+
 
 #### I hope that these little bits of information can give you an idea about my personality. It is quite hard to make friends especially during this pandemic. I hope that this short portfolio can introduce myself for you. Thanks!
