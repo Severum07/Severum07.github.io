@@ -14,7 +14,7 @@
 
 #### - Gaming (League of Legends, Valorant, Apex Legends)
 
-
+![apex-icon-transparent-logo-red-background-apex-legends-17](https://user-images.githubusercontent.com/97175644/167893949-1509d0a9-b644-4a9c-b3d8-40b0504d93c4.png)
 
 #### - Watching Anime 
 
@@ -23,13 +23,10 @@
 #### - Listening to Kpop (Twice, Nmixx, Itzy, StayC, Ive, Iz*One)
 
 
-
 #### - Speedcubing 
 
 
-
 #### - Drumming (Marching Snare)
-
 
 
 #### I hope that these little bits of information can give you an idea about my personality. It is quite hard to make friends especially during this pandemic. I hope that this short portfolio can introduce myself for you. Thanks!
